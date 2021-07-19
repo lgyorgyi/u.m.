@@ -1,0 +1,2 @@
+# u.m.
+Adományok fogadása 
